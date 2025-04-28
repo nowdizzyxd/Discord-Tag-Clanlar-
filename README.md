@@ -1,2 +1,0 @@
-# Discord-Tag-Clanlar-
-Clanlar
